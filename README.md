@@ -1,0 +1,2 @@
+# KEY-ROLES-OF-LIGHTING-AND-SHADING-SKILLS-IN-CREATION-OF-GAME-CHARACTERS-IN-GAME-OUTSOURCING-COMPANY
+Lighting and shading are two crucial phases of character creation in gaming. Whether it is a simple puzzle game or a complex one that involves cars and guns, lighting and shading play a decisive role in setting up the mood and atmosphere of a game. For instance, if it’s a thriller or mysterious game, then it must keep players on the edge of their seats. Such games will have darker environments and shady objects often punctuated with surprising elements.
